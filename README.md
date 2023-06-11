@@ -1,4 +1,4 @@
-### Hi there,i'm Abdelrahman Osama,a junior CS student at Faculty of Computer Science and Information Technology at Ain-Shams University from Egypt. ! 👋
+### Hi there,i'm Abdelrahman Osama,a Senior CS student at Faculty of Computer Science and Information Technology at Ain-Shams University from Egypt. ! 👋
 
 
 
